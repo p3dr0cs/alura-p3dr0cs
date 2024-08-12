@@ -10,4 +10,3 @@ Meu nome e Pedro Henrique Carvalho
 
 pedrocirilo943@gmail.com 
 
-![.](https://tenor.com/pt-BR/view/neymar-gif-23301292)
